@@ -1,1 +1,1 @@
-start a business is difficult.
+start a business is challenging.
